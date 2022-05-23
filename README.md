@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @tiffkath
-- 👀 I’m interested in biking, reading, & just being outside in general:)
+- 👀 I’m interested in biking, reading, & just being outside in general:) i do a lot of everything!
 - 🌱 I’m currently learning animation! Always trying to get better
 - 💞️ I’m looking to collaborate on any projects; let me animate for you!
 - 📫 How to reach me: tiffbkath@gmail.com
